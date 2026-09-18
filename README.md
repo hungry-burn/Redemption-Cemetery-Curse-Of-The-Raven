@@ -214,4 +214,4 @@ Redemption Cemetery: Curse of the Raven is the **full free version** with all fe
 Dive into the world of Redemption Cemetery: Curse of the Raven today and help the restless spirits find peace. **Download now!**
 
 ---
-**Last updated:** 2026-09-18 03:20:02 UTC
+**Last updated:** 2026-09-18 08:46:32 UTC
